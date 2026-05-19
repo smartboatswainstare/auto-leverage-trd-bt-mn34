@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://smartboatswainstare.github.io/auto-leverage-trd-bt-mn34/ ) |
  |---------------------|----------------------:|
 
 
